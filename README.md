@@ -1,1 +1,3 @@
-# Hi There :black_haired_woman:
+# Hi There :wave:
+
+Hi, I'm Ramisa Hassan! a passionate Data Analyst
