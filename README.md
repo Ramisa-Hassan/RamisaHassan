@@ -1,1 +1,1 @@
-# Hi There :black_haired_raising_hand_woman:
+# Hi There :black_haired_woman:
